@@ -8,4 +8,4 @@
 ![Mosaic abstract_page-0007](https://github.com/Mitra-Pidaparti/Mosaic/assets/110911635/e2d3ef7b-098e-4d1e-9daf-8b07ef13b242)
 ![Mosaic abstract_page-0008](https://github.com/Mitra-Pidaparti/Mosaic/assets/110911635/1cc8291b-7802-447f-8fc0-1d928fa464c5)
 ![Mosaic abstract_page-0009](https://github.com/Mitra-Pidaparti/Mosaic/assets/110911635/e4a9e4b2-075a-4afd-8a75-f8b0a626e9c2)
-![Mosaic abstract_page-0010](https://github.com/Mitra-Pidaparti/Mosaic/assets/110911635/9001025b-14d8-4745-833e-b412dc741be0)
+
